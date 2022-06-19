@@ -1,4 +1,7 @@
-## Hi there 👋
+🙋‍♀️ Hi!
+
+AVOCAT team - it's organization, that creating some apps and games.
+
 
 <!--
 
